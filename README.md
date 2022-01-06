@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hey! 👋
 
 - 🔭 I’m currently working at Quartz
 - 🌱 I’m currently learning how to make music!
